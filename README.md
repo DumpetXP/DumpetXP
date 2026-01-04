@@ -1,6 +1,2 @@
-【 💗 "when u lowkey just..dgaf" 】
-
-— Daisy , Dumpet
-she/her Cis female
-
+💗 RFLMAO
 #Kin's : Miu, Milly, Nicole, Dustin and Lute
