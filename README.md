@@ -2,4 +2,4 @@
 
 !! 🗯Check out the links for more information about me 
 
-#Kin's : Miu, Heather C, Milly, Nicole, Dustin and Lute
+#Kin's : Miu, Heather C, Milly, Nicole, Shiho, Dustin and Lute
