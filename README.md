@@ -1,2 +1,5 @@
-💗 RFLMAO
-#Kin's : Miu, Milly, Nicole, Dustin and Lute
+🌈《 RFLMAO >:D 》
+
+!! 🗯Check out the links for more information about me 
+
+#Kin's : Miu, Heather C, Milly, Nicole, Dustin and Lute
