@@ -4,4 +4,4 @@
 
 #Kin's : Miu, Heather C, Milly, Nicole, Shiho, Dustin and Lute
 
-🗣i speak : 🇺🇲,🇹🇷,🇸🇾 and 🇪🇸
+🗣 i speak : 🇺🇲,🇹🇷,🇸🇾 and 🇪🇸
